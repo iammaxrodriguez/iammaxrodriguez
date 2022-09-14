@@ -6,6 +6,6 @@
 - 👯 I’m looking to collaborate on projects involving life beyond Earth.
 - 🤔 I’m looking for help with dynamic programming.
 - 💬 Ask me about my interests.
-- 📫 How to reach me: mrodx360@comcast.net
+- 📫 How to reach me: maxrodri@iu.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know how to play the guitar!
